@@ -31,7 +31,7 @@
  - Clown Reason: Pasted directly from everything else, and had the balls to rat it too.
 
 
-> **Redstoneprojrjr(Shun)
+> **Redstoneprojrjr(Shun)**
  - "Developed": Hydrip, Invasion/Velo
  - Clown Reason: Cant code java, Did almost nothing for the client. Plexter C and Tab2 carried. Also is known for acting like a sped kid from time to time
 
